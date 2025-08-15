@@ -19,5 +19,5 @@ disclaimer :
 tidak untuk di buat kejahatan dan kepentingan pribadi wordlist ini duganakan untuk hal kebaikan dan kami tidak tanggung jawab jika wordlist ini di buat kejahatan ya
 
 Author : Nusantara1945/.
-Thanks : TegalXploiter
-offical family thanks to you to all
+
+Thanks : TegalXploiter & Offical Member SurabayaXploit
